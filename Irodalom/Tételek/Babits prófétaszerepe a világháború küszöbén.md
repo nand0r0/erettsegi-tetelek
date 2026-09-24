@@ -1,0 +1,1 @@
+A művész társadalmi szerepvállalása
