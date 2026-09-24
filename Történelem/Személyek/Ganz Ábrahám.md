@@ -1,0 +1,1 @@
+A magyar nehézipar egyik megteremtője

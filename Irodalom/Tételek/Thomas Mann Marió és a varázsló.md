@@ -1,0 +1,1 @@
+A diktatúra egyénre gyakorolt hatása

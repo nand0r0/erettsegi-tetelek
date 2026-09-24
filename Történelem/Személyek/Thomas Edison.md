@@ -1,0 +1,1 @@
+Izzólámpa feltalálója

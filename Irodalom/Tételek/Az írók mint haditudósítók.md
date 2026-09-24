@@ -1,0 +1,1 @@
+Molnár Ferenc, Móricz Zsigmond, E. R. Flores, Jászberényi Sándor, Vörös Szabolcs

@@ -1,0 +1,18 @@
+- 1545 - 1563 - Trineti Zsinat
+	- Katolikus hagyományokat megőrzik
+		- továbbra is van gyónás, stb
+	- Szigorúbb életet írnak elő a papoknak
+		- tartsák be a cölibátust(papi nőtlenség)
+	- búcsúcédulákat eltörtlik
+	- Protestáns törvényeket korlátozzák
+	-  Inkvizinciót megújítják
+		- Nem katolikusokat sújtja
+	- Index = tiltott könyvek jegyzéke
+		- Protestáns művek
+
+- 1540 - Loyolai Szent Ignác létrehozza a jezsuita rendet(az utolsó szerzetes rend)
+	- Magas szintű oktatás
+	- Katolicizmust védje
+	- Hierarchikus a felépítése
+	- Katonás fegyelmet várnak el
+	- Oktatják a papokat és a diákokat is

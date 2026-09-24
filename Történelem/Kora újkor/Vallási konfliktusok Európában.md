@@ -1,0 +1,56 @@
+- Anglia a koraújkorban
+	- VIII. Henrik
+		- Angol egyház az államnak van alárendelve
+			- Szakít rómával(a Pápával)
+			- Anglikán
+				- Az egyház feje a király
+				- Egyházi hierarchia
+				- Elutasítja a szentek tiszteletét
+				- Anyanyelvű igehírdetés
+	- I. Erzsébet(Henrik lánya)
+		- Parlamenttel együtt kormányoz
+		- Kelet-indiai társaság
+			- Kereskedelmi részvénytársaság
+
+- Francia(katolikus) abszolutizmus
+	- Erős központosított királyi hatalom
+	- Egységes Franciaroszág
+		- Külpolitikai kudarcai miatt meggyengül
+			- Protestánsok megjelennek
+				- Vallásháború(kb 30 év)
+				- Észak Franciaország Katolikus
+				- Dél Franciaország Protestáns
+					- Burbon család
+
+- 1572 - Szent Bertalan éjszakája
+	- Burbon Henrik💕Margit
+
+- Több 10ezer reformásust gyilkonak le
+- IV. Henrik
+	- "Párizs megér egy misét"
+	- áttér a katolikus egyházba
+	- **1598 - Nantes-i Edictum**
+		- Korlátozott vallásgyakorlat a protestánosoknak
+
+- **Harmincéves háború(1618-1648)**
+- Katolikusok: Franciaország, pápa, Habsburgok
+- Protestánsok: Dánia, Hollandia, Csehország
+- XVII. Század világháború
+	- 4 szakasz
+		- Cseh szakasz
+			- Csehek megtámadják a Habsburgokat
+				- Csehország Habsburg örökös tartomány része lesz
+		- Dán szakasz
+			- Dánok megtámadtják a Habsburgokat
+				- Dánok elbuknak
+		- Svéd szakasz
+			- Svédek megtámadják a Habsburgokat
+				- Svédek elbuknak
+		- Francia szakasz
+			-  Franciák megtámadják a Habsburgokat a protestáns oldalon
+				- Franciák nyernek
+	- Vesztfáliai béke
+		- Svájc kiválik Hollandiától
+		- Franciaország megkapja Elzászt
+		- Felbomlik a Habsburg birodalom(német római császárság)
+			- Létrejön több száz független állam
